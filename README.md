@@ -7,4 +7,4 @@ Cheats For Many Games join discord below
 Cheats For Many Games join discord below
 Cheats For Many Games join discord below
 
-https://discord.gg/a6s3qc4uD7
+https://discord.gg/38tqgGvDGC
